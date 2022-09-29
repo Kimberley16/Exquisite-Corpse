@@ -5,3 +5,6 @@ Soooooooo you're here to listen about a story? Okey, I travel about this world s
 The dwarf was splashing around, making a lot of noise ! 
 However, since it was only a Dwarf, I turned around and walked away. 
 That dwarf was never heard of again.
+However, just as I was walking away I heard another scream.
+This time it was a giant !
+He was huuuuuuuge.
